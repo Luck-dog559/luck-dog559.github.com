@@ -1,1 +1,1 @@
-# luck-dog559.github.com
+# luck-dog559.github.io
